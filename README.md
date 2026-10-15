@@ -43,6 +43,6 @@
 ------
 
 
-[ANii693](https://github.com/ANii693)
+[Tharukz](https://github.com/tharukz1125)
 
 Last Edited on: 28/02/2023
